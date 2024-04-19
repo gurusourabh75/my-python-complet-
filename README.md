@@ -1,4 +1,4 @@
-Before proceeding, I wanted to discuss the implications of posting the work online. 
+Before proceeding, I wanted to discuss the implications of posting the work online wjich i learn daily . 
 While I'm excited about the opportunity to showcase my  work
 I would love to discuss this further and address any questions or concerns you may have.
 Thank you for your time and consideration
